@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket smart Trading Bot: multi-exchange-support & trade-sniping, the #1 trading-bot. Includes multi-exchange-support and trade-sniping
 
 
 
